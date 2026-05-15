@@ -7,9 +7,9 @@ ABOUT ME
 
 • aliases : koii / koiixat / pkcivev3
 
-• I go by the name “koii” online !
+• call me "koii" ! ( yes, koii with two i's, although I don't mind being called koi as well ! )
 
-• I am fine with any pronouns
+• I am fine with any pronouns !
 
 • 10 / 02 . minor
 
