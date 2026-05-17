@@ -1,4 +1,4 @@
-<img width="1000" height="1000" alt="Messenger_creation_5A2C9B0D-C153-4D70-B23B-C502338C4C1E" src="https://github.com/user-attachments/assets/2e16cc87-ad8b-4051-9eff-3ff5acf724db" />
+<img width="240" height="180" alt="New Project 5  3BC72E3" src="https://github.com/user-attachments/assets/6bbf5031-2cc7-47ed-9416-083cc9cd6db8" />
 
 ___________________
 
@@ -36,7 +36,7 @@ interaction list :
 interact freely without worries; unless you fall under the categories listed in the iwc/dni list !!
 
 
-iwc ( interact with caution ) : if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
+iwc ( interact with caution ) : mirrorshippers (dniuid), if you hate/dislike my fandoms, or certain characters I like ( said characters listed above )
 
 
 dni : controversial topics ex; zoophiles, necrophiles, pedophiles, racism, homophobia, transphobia, xenophobia, etc. + people who support these topics
