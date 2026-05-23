@@ -20,8 +20,8 @@ $\textcolor{#748863}{(&thinsp;i&thinsp;am&thinsp;a&thinsp;kinnie&thinsp;for&thin
 <br>
 <br>
 certified evboverse lore enthusiast, theorist, professional glazer, and fanartist 👀 yes, I do watch his unscripted content too!
-<br>
-[![Evboverse related stuff I wrote](<img width="169" height="166" alt="Untitled2092_20260522175227" src="https://github.com/user-attachments/assets/cf382d38-daef-4583-b6ff-9e7eee1cd5a9" /> )](https://docs.google.com/document/d/1gWbShjfMNrEVoAHnT43TKB2u6Q6aGdLBiauTbDTaFEY/edit?usp=drivesdk)
+<br><br>
+Evboverse related stuff I wrote !!:[<img width="169" height="166" alt="Untitled2092_20260522175227" src="https://github.com/user-attachments/assets/cf382d38-daef-4583-b6ff-9e7eee1cd5a9" />](https://docs.google.com/document/d/1gWbShjfMNrEVoAHnT43TKB2u6Q6aGdLBiauTbDTaFEY/edit?usp=drivesdk)
 
 ___________________
 
