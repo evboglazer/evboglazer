@@ -39,5 +39,6 @@ ___________________
 $\textcolor{#dfdea9}{NOTE}$ ; everything listed above is subject to change, I might add more information, edit, or remove some existing info<br>
 <br>
 <br>
-<img width="600" height="166" alt="Untitled2092_20260522173900" src="https://github.com/user-attachments/assets/f46f0c29-c68a-4df2-b321-bfdeedf8d139" />
+<img width="600" height="166" alt="Untitled2092_20260522173905" src="https://github.com/user-attachments/assets/e8bcf740-e510-4e1b-b59e-1c2f30bbf172" />
+
 
