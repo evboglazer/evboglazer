@@ -17,7 +17,7 @@ ___________________
 
 # #2
 
-<p align =center> <img width="300" height="290" alt="frames2_20260730184713" src="https://github.com/user-attachments/assets/3bbdd6e2-6028-41f8-98ab-81b632d98412" />  
+[ <p align =center> <img width="300" height="290" alt="frames2_20260730184713" src="https://github.com/user-attachments/assets/3bbdd6e2-6028-41f8-98ab-81b632d98412" />  ](https://youtu.be/2pFwQiwRbcg?si=nulwXUKkWrSDb-Xu)
 <img width="238" height="48" alt="17854160637381251541378624750713" src="https://github.com/user-attachments/assets/2ff4b0e1-6853-4bfd-a613-d951100f3b56" /></p>
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&pause=1000&color=B6616D&center=true&vCenter=true&random=true&width=1000&height=45&lines=here+in+parkour+civilization%2C+no+one+chooses+to+jump+for+the+beef.)](https://git.io/typing-svg)<br>
