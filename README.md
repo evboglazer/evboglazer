@@ -48,3 +48,15 @@ $\textcolor{#898C85}{(&ensp;oh&thinsp;and&thinsp;warning,&thinsp;I'm&thinsp;a&th
 <i>all art & character sprites uploaded/used in github profiles is made by me <br></i></p>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=35&pause=1100&color=898C85&background=441A3400&center=true&vCenter=true&random=true&width=1000&height=45&lines=%C2%AB+end+of+text+%C2%BB)](https://git.io/typing-svg)
+
+# #4
+
+<p align =center><img width="175" height="175" alt="CommandBlock" src="https://github.com/user-attachments/assets/cf300d39-3f34-4166-a607-142ad5a7f36b" /></p>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=39&duration=5697&pause=45&color=E83332&background=E833320A&center=true&vCenter=true&random=true&width=1000&height=48&lines=and+so%2C+i+created+my+own+world+.)](https://git.io/typing-svg)
+
+$$ \color{#E83332} \mathbf{━ he/she/they&thinsp;(any)&thinsp;!&thinsp;yes&thinsp;i&thinsp;like&thinsp;c!Evbo&thinsp;━} $$
+
+$$ \color{#E83332} \mathbf{━see&thinsp;strawpage&thinsp;for&thinsp;more&thinsp;info&thinsp;!━} $$
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=56&duration=100&pause=45&color=E83332&background=E833320F&center=true&vCenter=true&random=true&width=1000&height=48&lines=%E2%98%85;%E2%98%86;%E2%9C%AE)](https://git.io/typing-svg)
