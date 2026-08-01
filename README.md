@@ -1,3 +1,6 @@
+heyo this is where i archive old profile layouts :p
+basic info about me is listed here too but id rather u check out my straw cuz it holds more organized info !!!
+
 # #1
 [ <img width="1920" height="1080" alt="Untitled2369" src="https://github.com/user-attachments/assets/6fa7cf8c-a19f-4554-a916-58f17c715801" />](https://youtu.be/2pFwQiwRbcg?si=nulwXUKkWrSDb-Xu)
 ___________________
